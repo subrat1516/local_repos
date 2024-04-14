@@ -1,2 +1,2 @@
-# it is out new repo
+# it is  new repo
 
